@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **adhul410@gmail.com**
 
-- 📄 Know about my experiences [https://adhul.dev/adhul2.pdf](https://adhul.dev/adhul2.pdf)
+- 📄 Know about my experiences [https://adhul.dev/adhul2.pdf](https://adhul.dev/adhulresume.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
